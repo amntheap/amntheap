@@ -5,4 +5,3 @@
   I was always in love with sports and machines. Not medical science.
 - 🌱 I’m currently learning machine learning and data science by Coursera, teaching by Michigan University.
 - 📫 I have a telegram account with the same ID .
-i hope you happy. :)
